@@ -3,7 +3,7 @@ Pip stroked his chin, pretending to ponder. "Hmm, that's a 'piercing' question. 
 
 The goblin grumbled as the path cleared. "Next! What is always in front of you but can’t be seen?"
 
-"Ah, a classic! That would be the future," Pip replied with a wink.
+He launched into a series of puns, each one more ridiculous than the last. "Why don't scientists trust atoms? Because they make up everything!" Gruff didn't even crack a smile. "What do you call a lazy kangaroo? Pouch potato!" Still nothing. Pip was starting to sweat. He pulled out his wand and with a flick, he conjured a comical image of Gruff wearing a tutu and dancing with squirrels. "Alright, alright, you win, little wizard. You can cross."
 
 The second goblin stamped his foot in frustration as another part of the path disappeared. "Last one, little wizard! What has to be broken before you can use it?"
 
