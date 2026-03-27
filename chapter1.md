@@ -5,8 +5,6 @@ In the heart of the Enchanted Forest lived a wizard named Pip, known for two thi
 
 With his trusty wand, a sprig of enchanted willow, Pip ventured into the forest. The trees loomed over him like giants, their branches gnarled and twisted. The air was thick with an eerie silence, broken only by the occasional rustle of unseen creatures. As he walked deeper, the path became treacherous, riddled with thorny bushes and deceptive illusions.
 
-Suddenly, a group of pixies fluttered around him, their tiny faces filled with worry. "Wizard Pip, the Whispering Woods are in disarray! The Gloom Goblins have blocked the path with riddles," one of them chirped.
-
 Pip chuckled. "Riddles, you say? Sounds like my kind of 'puzzle-ment'." He approached the blockade, where three Gloom Goblins stood guard, their eyes glowing menacingly.
 
 "To pass, you must answer our riddles," one goblin growled. "What has an eye, but cannot see?"

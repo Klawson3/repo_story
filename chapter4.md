@@ -1,4 +1,4 @@
-# Chapter 4
+# Chapter 4!
 
 Finally, Pip reached the center of the labyrinth, where Grok sat on a throne of stolen treasures, the Crystal Orb of Everlight dimming in his grasp. "Well, well, what do we have here? A pint-sized wizard trying to play hero," Grok sneered. "You're too late, little one. The forest will soon be mine!"
 
@@ -6,7 +6,7 @@ Pip stood his ground, his wand at the ready. "I may be small, Grok, but I pack a
 
 A battle of wits and magic ensued. Grok hurled bolts of dark energy, while Pip deflected them with clever spells and well-timed puns. "Is that all you've got? You're really 'hamming' it up!" Pip taunted, dodging another attack.
 
-Finally, Pip saw an opening. He cast a spell that created a giant, shimmering bubble around Grok, trapping him inside. "Looks like you're in a bit of a 'sticky' situation," Pip quipped.
+Finally, Pip quipped.
 
 With Grok contained, Pip snatched the Crystal Orb of Everlight and held it high. The orb pulsed with light, banishing the darkness and restoring balance to the forest. The trees straightened, the flowers bloomed, and the creatures emerged from their hiding places, cheering for their tiny hero.
 
